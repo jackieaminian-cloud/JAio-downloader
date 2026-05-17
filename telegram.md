@@ -7,6 +7,291 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 03:04
+---
+
+## VahidOOnLine — post 240712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ آمریکا، شنبه از ملوانان و خدمه ناو هواپیمابر آمریکایی «یو‌اس‌اس جرالد آر فورد» پس از پایان ماموریتی ۳۳۱ روزه در ایالات متحده استقبال کرد و گفت این ناوگروه در ماموریتی «تاریخی» برای جلوگیری از دستیابی ایران به سلاح هسته‌ای نقش داشته است.
+
+هگست در سخنرانی خود خطاب به خدمه ناوگروه رزمی ۱۲ و ناوشکن «یو‌اس‌اس ماهان» گفت: «به خاورمیانه رفتید تا بخشی از ماموریت جلوگیری از دستیابی ایران به سلاح هسته‌ای باشید؛ ماموریتی تاریخی که آن را به پایان خواهیم رساند.»
+
+او با اشاره به طولانی بودن این ماموریت دریایی گفت خدمه ناو در این مدت مسافتی معادل سه بار دور کره زمین را طی کردند و در اروپا، کارائیب و خاورمیانه حضور داشتند.
+
+وزیر جنگ آمریکا همچنین از خانواده‌های ملوانان قدردانی کرد و گفت خدمه ناوگروه «قدرت آمریکا را به شکلی تاریخی» به نمایش گذاشتند.
+
+هگست در پایان این مراسم، نشان «استناد افتخار ریاست‌جمهوری» را از طرف دونالد ترامپ به ناوگروه رزمی «جرالد آر فورد» و ناوشکن «یو‌اس‌اس ماهان» اعطا کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240711
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240711_1779060861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد دوشنبه ۲۸ اردیبهشت‌ماه، چند تصویر و گرافیک با مضمون قدرت نظامی و فشار آمریکا علیه جمهوری اسلامی منتشر کرد.
+
+در یکی از این تصاویر، یک پهپاد آمریکایی در حال هدف قرار دادن دو قایق با پرچم جمهوری اسلامی دیده می‌شود و روی آن نوشته شده است: «خدانگهدار! قایق‌های مثلا تندرو!»
+
+ترامپ همچنین روی پس زمینه‌ای با پرچم آمریکا، نقشه ایران و کشورهای منطقه را منتشر کرد که در آن فلش هایی از کشورهای اطراف ایران به سمت ایران نشانه می رود.
+ترامپ عصر یکشنبه ۲۷ اردیبهشت‌ماه در گفتگو با آکسیوس به تهران هشدار داده بود: «اگر پیشنهاد بهتری ارائه نکنند، آمریکا ایران را بسیار شدیدتر از قبل هدف قرار خواهد داد.»
+
+او در ادامه تاکید کرد: «ساعت در حال تیک‌تاک است؛ بهتر است خیلی سریع حرکت کنند، وگرنه چیزی برایشان باقی نخواهد ماند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240710
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240710_1779060861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی پیامی منتسب به اسماعیل قاآنی، فرمانده نیروی قدس سپاه، را درباره کشته شدن عزالدین الحداد، فرمانده شاخه نظامی حماس، منتشر کردند. در این پیام آمده است که کشته شدن چنین چهره‌هایی «الهام‌بخش مجاهدان جوان فلسطینی» برای «نابودی» اسرائیل خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341864
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341864_1779060862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump recited a passage from 2 Chronicles 7 during Sunday’s “Rededicate 250” celebration on the National Mall, including the well-known verse urging people to “humble themselves, and pray, and seek my face, and turn from their wicked ways.”
+
+The verse is often cited by Christians as a call for spiritual renewal.
+</div>
+
+## kianmeli1 — post 87458
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87458_1779060863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت نفت پس از پست های تهدید حمله به ایران افزایش یافت
+
+( بالا رفتن و پایین آمدن نفت با خبرهای هیجانی ممکن است برای شرط بندی و نوسان گیری و خرید و فروش نفت توسط دولت امریکا باشد
+شاید فردا با خبر دیگری بگوید توافق نزدیک است
+
+
+قبل از باز شدن بازار در کف قیمت میخرند‌ و با خبرهای هیجانی بالا میبرند تا صبح دوشنبه با بالاترین قیمت بفروشند
+
+جنگ نعمت است برای تمام دولت ها).
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87457
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87457_1779060864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب، یک فروند پهپاد MQ-9 Reaper نیروی هوایی ایالات متحده که حامل چندین موشک هوا به سطح AGM-114R9X Hellfire بود و بیشتر با نام «Ginsu Flying» شناخته می‌شود، توسط نیروهای تحت حمایت جمهوری اسلامی بر فراز غرب یمن تحت کنترل حوثی‌ها سرنگون شد و لاشه آن در عکس‌ها و ویدیوها به وضوح متعلق به یک MQ-9 دیده می‌شود.
+
+از آغاز درگیری در اواخر سال ۲۰۲۳، بیش از ۴۰ پهپاد MQ-9 Reaper، که ارزش آنها احتمالاً بیش از یک میلیارد دلار است، به دست ایران یا گروه‌های نیابتی ایران افتاده است که حداقل ۲۴ فروند از آنها بر فراز ایران و ۱۵ تا ۱۸ فروند توسط حوثی‌ها در یمن سرنگون شده‌اند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337702
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337702_1779060865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی پیامی منتسب به اسماعیل قاآنی، فرمانده نیروی قدس سپاه، را درباره کشته شدن عزالدین الحداد، فرمانده شاخه نظامی حماس، منتشر کردند. در این پیام آمده است که کشته شدن چنین چهره‌هایی «الهام‌بخش مجاهدان جوان فلسطینی» برای «نابودی» اسرائیل خواهد بود.
+https://iranintl.com/202605176601
+</div>
+
+## IranIntlTV — post 337701
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337701_1779060866.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلاد آفرین، زندانی سیاسی سابق، در حاشیه تجمع اعتراضی ایرانیان در لس‌آنجلس به نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، گفت: «ما صدای زندانیان سیاسی هستیم. من خودم یکی از کسانی بودم که فشارها و آزارهای زندان را تجربه کردم.»
+
+او افزود: «مردمی که امروز اینجا جمع شده‌اند، صدای شما هستند. ما کنار مردم ایران ایستاده‌ایم و می‌خواهیم هرچه زودتر از جمهوری اسلامی عبور کنیم تا زندانیان بتوانند با آرامش به زندگی خود برگردند.»
+
+آفرین همچنین گفت: «مطمئن باشید این آخرین نبرد است.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 218022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ایران در میزگردهای هفتگی شبکه‌های تلویزیونی آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رسانه‌های آمریکایی: ترامپ روز شنبه با مشاوران ارشد امنیت ملی خود درباره ایران جلسه گذاشت؛ سه‌شنبه نیز جلسه دیگری دارد
+
+▪️سایت خبری آکسیوس روز یک‌شنبه ۲۷ اردیبهشت گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا قرار است روز سه‌شنبه در «اتاق وضعیت» کاخ سفید با مشاوران ارشد امنیت ملی خود جلسه‌ای درباره ایران برگزار کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150967.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 281331
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281331_1779060869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در پی واژگون شدن اتوبوس حامل کارکنان مجمتع گاز پارس جنوبی در عسلویه، شش نفر کشته و ۲۰ نفر مجروح شدند.
+
+ابراهیم عباسی، سخنگوی مجتمع گاز پارس جنوبی به ایسنا گفته است این اتوبوس در حال سفر به شهر کرمانشاه بوده است که در جاده عسلویه - سیراف دچار سانحه و واژگون شده است.
+
+https://bbc.in/4dqYKR9
+📷 Irna
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389657
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389657_1779060871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389656
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389656_1779060871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A27
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389655
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389655_1779060872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389654
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389654_1779060872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان اگه پولتون زیادی کرده و نمیدونین باهاش چیکار کنین، کاخ گوتیک امیردشت با قیمت مفتِ 1500 میلیارد به فروش میرسه، حتما بخرین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389653
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389653_1779060874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنجیره بی‌پایانِ پیروزی‌های آخوند برشمشیر 🤭🧩
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389652
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389652_1779060874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تخمش از ممه‌های دخترت بزرگتره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389651
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389651_1779060875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما چپولایی که کل شجاعتتون این بوده تو خونه‌های تیمی، زناتون رو با هم ضربدری عوض بدل کنید، جلوی این نسل از خایه حرف نزنید مادرجنده‌های زن و دختر خراب!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389650
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389650_1779060876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس جدید بیلی ایلیش :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بدتر از خود مقوله‌ی vpn خریدن اینه که حتما باید vpn داشته باشم که بتونم دوباره بخرم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخم ما از ممه دخترت بزرگتره
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 01:59
 ---
 
